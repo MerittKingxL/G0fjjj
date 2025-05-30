@@ -1,2 +1,4 @@
-# G0fjjj
-Kral Olmak İçin Tahta Gerek Yok
+# Kral Olmak İçin Tahta Gerek Yok
+
+KAZANDIRAN OYUNLAR
+
